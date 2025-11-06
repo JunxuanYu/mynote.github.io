@@ -1,1 +1,1 @@
-# mynote.github.io
+# junxuanyu.github.io
